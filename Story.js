@@ -1,0 +1,2 @@
+Once upon a time there lived a monkey on a sweet berry tree.One day a crocodile was resting below the tree and was too hungry.
+He asked the monkey for some berries.The Monkey was soo to give him some handfull of berries.
